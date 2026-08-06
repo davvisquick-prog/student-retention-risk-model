@@ -80,4 +80,4 @@ Institutions often identify at-risk students only after they've already disengag
 
 ## Contact
 
-David Quick — davvis_quick@icloud.com
+Davvis Quick — davvis_quick@icloud.com
